@@ -30,6 +30,6 @@ jobs:
         uses: peaceiris/actions-gh-pages@v3
         with:
           access_token: ${{ secrets.ACCESS_TOKEN }}
-          github_token: ${{ secrets.GITHUB_TOKEN }}   /* 注意：这行是新加的 */
+          github_token: ${{ secrets.G_GITHUB_TOKEN }}   /* 注意：这行是新加的 */
           BRANCH: gh-pages
           publish_dir: book
