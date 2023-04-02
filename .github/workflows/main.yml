@@ -27,9 +27,12 @@ jobs:
 
       - name: Deploy to GitHub Pages 🚀
         if: ${{ github.event_name != 'pull_request' }}
-        uses: peaceiris/actions-gh-pages@v3
+        uses: AhsanAyaz/angular-deploy-gh-pages-actions@v1.4.0 ## replace by latest version without it you will see Expected format {org}/{repo}[/path]@ref. Actual 'AhsanAyaz/angular-deploy-gh-pages-actions',Input string was not in a correct format.
         with:
-          personal_token: ${{ secrets.PERSONAL_TOKEN }}
-          publish_dir: book
+          github_access_token: ${{ secrets.PERSONAL_TOKEN }} # https://github.com/settings/tokens see the Configuration section for how you can create secrets
+          build_configuration: production # The build environment for the app. please look configurations in your angular.json
+          base_href: /angular-mdbook/   # make sure this corresponds to https://<your_username>.github.io/<base_href>/
+          deploy_branch: gh-pages # The branch the action should deploy to.
+          angular_dist_build_folder: book # The folder where your project is supposed to be after running ng build by the action.
     permissions:
       contents: write # Explicitly add this.
