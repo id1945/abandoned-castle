@@ -32,4 +32,4 @@ jobs:
           github_token: ${{ secrets.PERSONAL_TOKEN }}
           publish_dir: book
     permissions:
-      contents: read # Explicitly add this.
+      contents: write # Explicitly add this.
