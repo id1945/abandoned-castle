@@ -1,6 +1,5 @@
 # Summary
 
-- [mdBook Quickstart](README.md)
 - [Story of Carrie](story-of-carrie-a-hardworking-single-mom.md)
 - [Lynnewood Hall!](greatest-abandoned-gilded-age-mansion-in-usa.md)
 - [Foo](foo/README.md)
