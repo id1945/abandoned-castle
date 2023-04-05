@@ -1,0 +1,21 @@
+- welcome back everybody to the Bros of Decay.
+- chào mừng mọi người quay trở lại với Bros Of Decay
+- I got a fantastic place to show you today
+- tôi có một địa điểm tuyệt vời để cho bạn thấy hôm nay
+- this is one of the grandest Gilded-Age mansions in the United States.
+- đây là một trong những lâu đài thời kỳ mạ vàng vĩ đại nhất ở Hoa Kỳ.
+- built in 1899 by peter A.B widner, this place is just fascinating and today we are going to take you on a tour throughout here 
+- được xây dựng vào năm 1899 bởi peter A.B widner, địa điểm này thật hấp dẫn và hôm nay chúng tôi sẽ đưa bạn đi tham quan khắp nơi đây.
+- and show you all the ins and outs and the history that this place has to show.
+- và cho bạn thấy tất cả thông tin chi tiết cũng như lịch sử mà địa điểm này thể hiện
+- but i am not alone today
+- nhưng hôm nay tôi không đơn độc
+- today i'm joined by engie and edward and they are gonna tell us the history and take a deeper dive into everything that this place has to offer
+- ngày hôm nay có sự tham gia của engie và edward và họ sẽ kể cho chúng ta nghe về lịch sử và tìm hiển sâu hơn về mọi thứ mà địa điểm này mang lại \
+- lynewood hall is one of the biggest gilded-age mansions in the united states
+- lynewood hall là một trong những lâu đài mạ vàng lớn nhât ở hoa kỳ
+- around a century ago 
+- khoảng một thế kỷ trước
+- mr peter a.b widner ordered the architect horace trumbauer to design and build the mansion
+- ông peter a.b widner đã ra lệnh cho kiến trúc sư horace trumbauer thiết kế và xây dựng dinh thự
+- 
