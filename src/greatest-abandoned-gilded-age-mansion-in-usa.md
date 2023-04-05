@@ -1,13 +1,10 @@
 ```
- __                                                                      __      __  __            ___    ___      
-/\ \                                                                    /\ \    /\ \/\ \          /\_ \  /\_ \     
-\ \ \      __  __    ___     ___      __   __  __  __    ___     ___    \_\ \   \ \ \_\ \     __  \//\ \ \//\ \    
- \ \ \  __/\ \/\ \ /' _ `\ /' _ `\  /'__`\/\ \/\ \/\ \  / __`\  / __`\  /'_` \   \ \  _  \  /'__`\  \ \ \  \ \ \   
-  \ \ \L\ \ \ \_\ \/\ \/\ \/\ \/\ \/\  __/\ \ \_/ \_/ \/\ \L\ \/\ \L\ \/\ \L\ \   \ \ \ \ \/\ \L\.\_ \_\ \_ \_\ \_ 
-   \ \____/\/`____ \ \_\ \_\ \_\ \_\ \____\\ \___x___/'\ \____/\ \____/\ \___,_\   \ \_\ \_\ \__/.\_\/\____\/\____\
-    \/___/  `/___/> \/_/\/_/\/_/\/_/\/____/ \/__//__/   \/___/  \/___/  \/__,_ /    \/_/\/_/\/__/\/_/\/____/\/____/
-               /\___/                                                                                              
-               \/__/
+    __                                                   __   __  __      ____
+   / /   __  ______  ____  ___ _      ______  ____  ____/ /  / / / /___ _/ / /
+  / /   / / / / __ \/ __ \/ _ \ | /| / / __ \/ __ \/ __  /  / /_/ / __ `/ / / 
+ / /___/ /_/ / / / / / / /  __/ |/ |/ / /_/ / /_/ / /_/ /  / __  / /_/ / / /  
+/_____/\__, /_/ /_/_/ /_/\___/|__/|__/\____/\____/\__,_/  /_/ /_/\__,_/_/_/   
+      /____/
 ```
 
 [![VIDEO](https://img.youtube.com/vi/J4uGmONRwHA/maxresdefault.jpg)](http://www.youtube.com/watch?v=J4uGmONRwHA)
@@ -50,4 +47,21 @@
 - lynwood hall la một giấc mơ trở thành hiện thực đối với peter
 - it was unlike any gilded age mansion built before its time
 - nó không giống bất kỳ dinh thự thời kỳ hoàng kim nào được xây dựng trước thời điểm đó
-- 
+- later on sau đó
+- the mansion fell into the hands of peter his son jo
+- dinh thự rơi vào tay của peter con trai ông là jo
+- jo was fascinated everything frech 
+- jo bị mê hoặc bởi mọi thứ của pháp
+- and let the mansion be redesigned into a french country estate
+- và để dinh thự được thiết kế lại thành một điền trang ở nông thôn pháp
+- lynwood hall is almost two times bigger than the white house
+- lynwood hall lớn hơn gần hai lần so với nhà trắng
+- having a total of roughly 100k square feet
+- có tổng diện tích khoảng 100 nghìn mét vuông.
+- inside the mansion, we also find the longest residential enfilade in the united states
+- bên trong dinh thự, chúng tôi cũng tìm thấy khu dân cư có đường bao quanh dài nhất ở hoa kỳ
+- 2:59
+
+
+
+
