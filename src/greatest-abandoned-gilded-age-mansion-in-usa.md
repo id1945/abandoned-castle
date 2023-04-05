@@ -1,3 +1,5 @@
+[![VIDEO](https://img.youtube.com/vi/J4uGmONRwHA/maxresdefault.jpg)](http://www.youtube.com/watch?v=J4uGmONRwHA)
+
 - welcome back everybody to the Bros of Decay.
 - chào mừng mọi người quay trở lại với Bros Of Decay
 - I got a fantastic place to show you today
