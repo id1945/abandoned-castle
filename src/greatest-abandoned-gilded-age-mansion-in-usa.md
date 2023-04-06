@@ -60,7 +60,37 @@
 - có tổng diện tích khoảng 100 nghìn mét vuông.
 - inside the mansion, we also find the longest residential enfilade in the united states
 - bên trong dinh thự, chúng tôi cũng tìm thấy khu dân cư có đường bao quanh dài nhất ở hoa kỳ
-- 2:59
+- finest french gardens found in america - các khu vườn kiểu pháp đẹp nhất được tìm thấy ở mỸ
+- comparable to the gardens of the castle of versailles - có thể so sánh với các khu vườn của lâu đài varsailles
+- being the largest mansion in pennsylvania - là dinh thự lớn nhất pennsylvania
+- we can see that the widner family was no ordinary family
+- chúng tôi thấy rằng gia đình widner không phải là gia đình bình thường
+- they left an everlasting footprint on this area - họ đã đẻ lại dấu ấn vĩnh viễn trên khu vực này.
+- to give a more in-depth story of the family edward
+- để mang đến một câu chuyện sâu sắc hơn về gia đình mà edward
+- so peter A.B widner. you know, he really is the epitome of what we call the american dream 
+- vì vậy peter a.b widner, bạn biết, ông ấy thực sự là hình ảnh thu nhở của cái mà chúng ta gọi là giấc mơ mỹ
+- his family didn't have much money - gia đình anh ấy không có nhiều tiền
+- and his brother owned a butcher business - và anh trai anh ấy sở hũu một của hàng bán thịt
+- because he used to hang out and make connections politically in philadelphia
+- bởi vì anh ấy thường đi chơi và tạo mối quan hệ chính trị ở philadelphia.
+- he won himself a contract to supply mutton to the union troops within a 10-mile radius of philadelphia
+- anh ấy đã giành được cho mình một hợp đồng cung cấp thịt cừu cho quân đội công đoàn trong bán kình 10 dặm của philadelphia
+- he was awarded fifty thousand dollars
+- anh ấy đã được thưởng 50 nghìn đô la.
+- which is around 800 grand give or take today.
+- đó là khoảng 800 đô la cho đến ngày nay
+- so a nice chunk of change
+- peter not being a dummy decided to invest in what he thought was the next best thing 
+- peter không phải là một kẻ khờ khạo đã quyết định đầu tư vào thứ mà anh ây nghĩ là thứ tốt nhất tiếp theo
+- that was traction he started with horse draw and today trolley cars and it went on to motorized
+- đó là sức kéo mà anh ấy bắt đầu với xe ngựa kéo và ô tô đẩy, sau đo chuyển sang
+- and electified ones and owned the trolley car lines of many major cities in the united states
+- ô tô diện và động cơ đồng thời sở hữu các dây chuyền ô tô đẩy tại nhiều thành phố lớn ở hoa kỳ
+- he was an investor in the american tobacco company, international mercantile marine
+- ông ấy là nhà đầu tư vào công ty thuốc lá mỹ 
+- 
+- 
 
 
 
