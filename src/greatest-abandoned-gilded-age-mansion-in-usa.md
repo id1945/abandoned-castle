@@ -89,7 +89,7 @@
 - ô tô diện và động cơ đồng thời sở hữu các dây chuyền ô tô đẩy tại nhiều thành phố lớn ở hoa kỳ
 - he was an investor in the american tobacco company, international mercantile marine
 - ông ấy là nhà đầu tư vào công ty thuốc lá mỹ 
-- 
+- 4:49
 - 
 
 
