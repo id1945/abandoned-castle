@@ -90,7 +90,54 @@
 - he was an investor in the american tobacco company, international mercantile marine
 - ông ấy là nhà đầu tư vào công ty thuốc lá mỹ 
 - 4:49
-- 
+- standard steel, and standard oil, I mean he had his hand in a little bit of everything.
+- thép tiêu chuẩn, và đâu tiêu chuẩn, ý tôi là ông ấy đã nhúng tay vào mọi thứ
+- and it was the perfect time 
+- và đó là thời điểm hoàn hảo.
+- because american was in the middle of this huge(to lớn) industrial revolution(cuộc cách mạng)
+- vì lúc đó nước mỹ đang ở giữa cuộc cách mạng công nghiệp rộng lớn.
+- at that time tại thời điểm đó
+- so he was in the right place at the right time and with the right smarts behind him 
+- vì vậy anh ấy đã đúng mọi nơi, đúng thời điểm và có những người thông minh phù hợp hỗ trợ anh ấy
+- throught the international Mercantile Marine company with JP Morgan they had a large
+- thông qua công ty International Mercantile Marine company với JP Morgan họ có một lượng lớn
+- and i believe the mejority shareholding in white star line and therefore the titanic
+- và tôi tin rằng phần lớn cổ phần trong white star line và do đó là titanic
+- so a lot of times vì vậy rất nhiều lần
+- you'll hear people say - bạn sẽ nghe mọi người nói
+- oh Lynnewood is the Titanic house - Lynnewood là ngôi nhà của Titanic
+- peter owned the titanic - peter sở hữu con tàu titanic
+- that is not exactly true - điều đó không chính xác
+- he was a partner with jp morgan and with international mercantile marine
+- anh ấy là đối tác của jp morgan và với international mercantile marine
+- and they owned a shareholding of white star line 
+- và họ sở hữu cổ phần của white star line
+- so yes and no
+- vì vậy có hoặc ko
+- they had a home on north broadstreet in philadelphia at broad and greard
+- họ có một ngôi nhà ở north broadsteet ở philadelphia tại broad và gerard
+- unfortunately thật không may
+- it's no logger here - nó không còn ở đây nữa
+- it was demolished probaly 35-40 years ago
+- nó đã bị phá huỷ cách đây 35-40 năm
+- but they built this house in 1899  and the purpose for this was the over-growing family and
+- nhung họ đã xây dựng ngôi nhà này vào năm 1899 và mục đích của việc này là gia đình ngày càng phát triển
+- and the ever-growing art collection art was a passion for pab he was self-taught on it and his son also
+- và nghệ thuật sưu tập nghệ thuật ngày càng phát triển là đam mê đói với món ăn mà ông đã tự học và con trai ông cũng đã
+- picked up that passion and carried that tradition on which we'll talk about in a few minutes but
+- tiép thu niềm đam mê đó và tiếp nối truyền thống chúng ta sẽ nói về vấn đề đó trong vài phút nữa nhưng
+- he needed a house for his growing family and his art so they built this home and it has
+- anh ấy cần một ngôi nhà cho gia đình đang ngày càng đông đúc của mình và nghệ thuật của anh ấy nên họ đã xây ngôi nhà này và nó có
+- five art galleries in it initially - năm phòng trưng bày nghệ thuật ban đầu 
+- because he was self-taught he got swindled a number of times and
+- vì anh ấy tự học nên anh ấy đã bị lừa nhiền lần và
+- bought what he thought were expensive and nice and real pieces turns out that they weren't when
+- đã mua những thứ mà ông cho là đắt và đẹp và những món đồ thật hoá ra lại không phải
+- peter passed away in 1915 his son weeded through the collection and got rid of 
+- peter qua đời năm 1915 con trai của ông đã lục tung bộ sưu tập và loại bỏ
+- lot of the subpar pieces it kept only the finest an then coutiued to add until around 1925 1930
+- rất nhiều đồ kém chất lượng mà chỉ giữ lại những món đồ tốt nhất và sau đó tiếp tục bổ sung cho đén khoảng năm 1925 1930
+- 6:28
 
 
 
