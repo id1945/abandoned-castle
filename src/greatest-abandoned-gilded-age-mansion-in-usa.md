@@ -138,7 +138,39 @@
 - lot of the subpar pieces it kept only the finest an then coutiued to add until around 1925 1930
 - rất nhiều đồ kém chất lượng mà chỉ giữ lại những món đồ tốt nhất và sau đó tiếp tục bổ sung cho đén khoảng năm 1925 1930
 - 6:28
-
+- titanic actually has two connection with the family
+- titanic thực sự có hai mối liên hệ với gia đình
+- so the second one being peter's second son george dunton widener
+- vì vậy người thứ hai là con trai thứ hai của peter
+- george dunton widener and his wife and your grandchildren set sail from cherbourg back to america
+- george dunton widener và vợ của anh ấy và bạn những người cháu của bà lên đường
+- and unfortunately george sutton widner and her grandson harry elkins widner passed away
+- và thật không may george sutton widner và cháu trai của bà harry elkins widner đã qua đời
+- in the sinking of the titanic eleanor and her ladies maid survived the family was very 
+- trong vụ đắm tàu titanic eleanor và những người phụ nữ giúp việc của bà vẫn sống sót
+- i think one of their major contributions was in memory of harry so harry was a huge bibliophile
+- tôi nghĩ một trong những đóng góp chính của họ là để tưởng nhớ harry nên harry là một người mê sách khổng lồ 
+- he has some of the rarest books in the world here at linwood hall he collected from anywhere in the world
+- anh ấy có một số cuốn sách hiếm trên thế giới ở đây tại hội trường linwood mà anh ấy thu thập từ mọi nơi trên thế giới
+- it is was passion he actually went down on the titanic with a small copy in his jacket of essays be francis bacon 
+- đó là niềm đam mê của anh ấy, anh ấy thực sự bắt đầu titanic với một bản sao nhỏ trong áo khoác các bài tiểu của francis bacon 
+- he call it little bacon he went to europe just to get that book so affer he passed away
+- ông ấy gọi nó là thịt xông khói nhỏ, ông ấy đã đi châu âu chỉ để lấy cuốn sách đó nên sau khi ông ấy qua đời
+- p.a.b and  his daughter-in-law harry's mother eleanor elkins widner decided to 
+- pab và con dâu của ông ấy, mẹ của harry eleanor elkins widner đã quyết định
+- donate his entire collection to harvard university 
+- tặng cuốn sách của ông ấy toàn bộ sưu tập cho trường đại học harvard 
+- where he attended uh university and they because they didn't have a facility to 
+- nơi anh ấy từng theo học đại học và vị họ không có cơ sở
+- to properly house the books the weidner family completely donated to funds
+- vật chất để cất giữ những cuốn sách đàng hoàng nên gia đình đã quyên góp hoàn toàn cho quỹ 
+- and hired architect cars trumbauer the same that did this home to construct for harvard
+- và thuê những chiếc ô tô của kiến trúc sư trumbauer giống như ngôi nhà này đã xây dựng cho harvard 
+- harry elkins wedner memorial library in the middle of the campus so that was one of the major contributions back to the public
+- harry elkins thư viện tưởng niệm wedner ở giữa khuôn viên vì vậy đó là một trong những đóng góp lớm của họ cho công chúng
+- back to people after peter's death in 1915 he passed aways
+- trờ lại với mọi người sau cái chết của peter vào năm 1915
+8:03
 
 
 
