@@ -1,7 +1,7 @@
 [book]
-authors = ["Michael Currin"]
+authors = ["DaiDH"]
 language = "en"
 multilingual = false
 src = "src"
-title = "Abandoned Castle Mansion"
+title = "Abandoned Castle"
 description = "Demo site for mdBook Quickstart repo"
