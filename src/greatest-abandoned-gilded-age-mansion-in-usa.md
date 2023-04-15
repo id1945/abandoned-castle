@@ -170,7 +170,145 @@
 - harry elkins thư viện tưởng niệm wedner ở giữa khuôn viên vì vậy đó là một trong những đóng góp lớm của họ cho công chúng
 - back to people after peter's death in 1915 he passed aways
 - trờ lại với mọi người sau cái chết của peter vào năm 1915
-8:03
+- at age 80 and his doctor said it was a combination of heartbreak and you know just old age
+- ở tuổi 80 và bác sỉ của ông nói rằng đó là sự kết hợp của sự đau lòng và bạn biết đấy tuổi già
+- joseph the youngest son and his wife ella pancosta widener inherited the estate joseph
+- joseph con trai út và vợ của anh ấy ella widner được thừa kế gia sản joseph 
+- lived here until his death in 1943 ella passed away in 1929 here from heart complications 
+- sống ở đây cho đến khi ông qua đời vào năm 1943 ella qua đời vào năm 1929 tại đây do biến chứng tim nhưng bạn biết đấy
+- joe continued to live here for some time 
+- joe vẫn tiếp tục sống ở đây một thời gian
+- after that joe went through a major redo on this house he tore out a lot of things he redid a lot of things 
+- sau khi joe đã trải qua một quá trình làm lại lớn trong ngôi nhà này, anh ấy đã phá bỏ rất nhiều thứ, anh ấy đã làm lại nhiều thứ
+- abliterated any sense of victorian era in this house and totally trasformed it into a french
+- cảm giác về thời kỳ chiến thắng trong ngôi nhà này và biến nó hoàn toàn thành một điền trang ở nông thôn pháp
+- which was his passion 
+- đó là niềm đam mê của anh ấy
+- he weeded through the art collection he got rid of a lot of
+- anh ấy đã lục lọi bộ sưu tập anh ấy đã loại bỏ đi rất nhiều
+- he brought in what he thought were amazing pieces and by the early 1920s
+- ông ấy đã mang đến những thứ mà ông nghĩ là những tác phẩm nghệ tuyệt vời vào đầu những năm 1920
+- the art collection housed here at linwood hall 
+- bọ sưu tập nghệ thuật được đặt tại đây, tại linwood hall
+- was not only the largest 
+- không chỉ là bộ sưu tập nghệ thuật lớn nhất
+- but considered the finest private collection of the of art seen anywhere globally 
+- mà còn được coi là bộ sưu tập cá nhân đẹp nhất được thấy ở bất cứ nơi đâu trên toàn cầu
+- and it remained that way until 1943 when they donated it to the national gallery of art in washington dc
+- và nó vẫn như vậy cho đến năm 1943 khi khi họ tặng nó cho phòng chưng bày nghệ thuật quốc gia ở washinton dc
+- that was another one of their major contributions back to the american people after joe passed away 
+- đây là một trong những đóng góp lớn khác của họ cho người dân mỹ sau khi joe qua đời
+- the family didn't really want to keep up 
+- gia đình không thực sự muốn duy trì 
+- the estate and people weren't really living in homes like this anymore in america
+- di sản và mọi người không thực sự sống trong những ngôi nhà như thế này nữa ở mỹ
+- so it was auctioned off and a real estate developer bought it and sat on it for 10 year eight years
+- nên nó đã được bán đấu giá và một nhà phát triển bất động sản đã mua nó và ngồi trên trong 10 năm  8 năm 
+- give or take and in 1952 the faith theological seminary was looking for a new campus and they
+- cho hoặc nhận và vào năm 1952 chủng viện thần học đức tin đang tìm kiếm một khuôn viên mới và họ
+- purchased it carl mcintyre then the head of the the seminary kind of envisioned this as an ivy league christian school 
+- mua nó carl mcintyre sau đó người đứng đầu chủng viện dã hình dung đây là một trường cơ độc giáo thường xuân
+- he loved the history of it
+- ông yêu lịch sử của nó
+- he love the design the architecture the ambiance
+- ông yêu thích thiết kế kiến trúc bầu không khí
+- and faith(sự tin tưởng) theological(thần học) seminary(sự tin tưởng) took up(bắt đầu) residence(nơi cư trú) here from 52 until 96 so they had a pretty long(khá dài) tenure at this property
+- và chủng viện thần học đức thánh tin đã cư trú ở đây từ năm 52 đến năm 96, vì vậy họ đã có một thời gian sở hữu khá dài tại bất động sản này
+- they meticulously(tỉ mỉ) cared(chăm sóc) for it for about the first 30 years
+- họ chăm sóc nó một cách tỉ mỉ trong khoảng 30 năm đầu
+- but they ran upon some finacial hardships(khó khăn) in the late(vào cuối năm) 80s early(đầu những năm) 90s and unfortunately 
+- nhưng họ gặp một số khó khăn về tài chính vào cuối năm 80 đầu những năm 90 và thật không may
+- some features and historical elements of the house were sold off to make ends meet
+- một số đặc diểm và yếu tố lịch sử của ngôi nhà đã bị bán đi để trang trải cuộc sống
+- in 96 the current owner of the property saved fts from bankruptcy and purchased it for five million dollars
+- vào năm 96 chủ sở hữu hiện tại của tài sản đã cứu fts khỏi phá sản và mua nó với giá 5 triệu đô
+- and now he is the owner today
+- và bây giờ anh ấy là chủ sở hữu ngày hôm nay 
+-  so welcome everybody inside of linwood hall
+-  vì vậy chào mừng mọi người vào bên trong hội trường linwood hall
+- i'm very excited to take you on a tour of this place and we find ourselves right now
+- tôi rất vui mừng được đưa bạn đi tham quan nơi này và chúng tôi tìm thấy ngay bây giờ 
+- we in the grand hallway this was where the people came in and had their first impressions(ấn tượng) of this magnigicent estate
+- chúng tôi ở trong hành lang lớn, đây là nơi mọi người bước vào và có ấn tượng đầu tiên về khu đât tráng lệ
+- angie edwards thank you so much for showing us this place 
+- angie edwards cảm ơn bạn rất nhiều vì đã cho chúng tôi thấy nơi này
+- we are excited to be inside of here and have the ability(khả năng) to show the people what this place is all about
+- chúng tôi rất vui khi được vào bên trong đây và có khả năng cho mọi người thấy tất cả những gì về nơi này
+- and they are they are advocates(những ng ủng hộ) of linwood hall and trying to preserve this place for the future so edward
+- và họ là những người ủng hộ hội trường linwood hall và cố gắng bảo tồn nơi này cho tương lại nên edward
+- if i unferstand this correctly
+- nếu tôi hiểu điều này một cách chính xác
+- you have been obsessed with linwood hall since you were 11 year old
+- bạn đã bị ám ảnh bởi hội trường linwood hall từ khi bạn 11 tuổi
+- that's correct oh my god and angie you followed in his footsteps a couple of years ago
+- đúng đấy trời ơi và angie bạn đã theo bước chân của anh ấy vài năm trước
+- and both you are doing such a great job at the end of the video angie is going to give us elaboration about how they are going to try to save this place
+- và cả hai đều đang làm rất tốt ở cưới video angie sẽ cho chúng ta biết chi tiết về cách họ sẽ cố gắng cứu lấy nơi này
+- and bring a new feature to it so thank you 
+- và mang lại một tương lại mơi cho nó vì vậy cảm ơn bạn
+- for that angie and edward let's go through this place and let's see what this grand place has to
+- vì điều đó angie và edward chúng ta hãy đi qua địa điểm này và hãy địa điểm này có gì 
+- so first off let's just take a big overview of the hallway let's just appreciate
+- vì vậy trước tiên hãy xem qua tổng quan về hành lang, chúng ta hãy đánh giá cao 
+- it elegancy and yeah just the grandness of this room do you have anything interesting to tell about?
+- sự trang nhã của nó và vâng, chỉ là sự hoành tráng của văn phòng này,bạn có đièu gì thú vị để kể về điều này không?
+- this room that people might want to know about so first and foremost i would say
+- căn phòng mà mọi người có thể muốn biết về vì vậy trước hết tôi muốn nói
+- that this room is often compared to the breakers at newport okay and that's because it was based off of breakers
+- rằng căn phòng này thường được so sánh với những chiếc cầu dao ở newport được thôi đó là bởi vì nó dựa những chiếc cầu dao
+- so it's a smaller version that's to mention it in rhode island
+- nên nó là một phiên bản thu nhỏ của căn phòng đó đảo rhode
+- if i'm correct
+- nểu tôi đúng
+- mansion of rhode island yeah so this is a smaller of the entry court at the breakers as well 
+- biệt thự vanderbilt của đảo rhode vâng vì vậy đây là một phiên bản  nhỏ hơn của toàn án nhập cảnh tại các cầu dao cũng như vậy
+- i love that you say smaller version here because
+- tôi yêu thích bạn nói phiên bản nhỏ hơn ở đây vì
+- the ceilling how high are they i think about 45-50 feet
+- trần nhà của họ cao bao nhiêu tôi nghĩ 45-50 feet
+- metric that's about 10 meters and you can see back in the day this whole room would be completely
+- số liệu là khoảng 10 mét và bạn có thể nhìn lại ngày trước toàn bộ căn phòng này 
+- furnished(trang bị) with faces and ... and there would be uh paper streets everywhere
+- sẽ được trang bị đầy đủ các khuôn mặt và quảng cáo và sẽ có những con đường giấy ở khắp mọi nơi
+- on the side halls we had a huge estefan carpet in here uh table they had chinese urns 
+- các bên sảnh, chúng tôi có một tấm thảm estefan khổng lồ ở đây, uh, bàn, họ có những chiếc bình kiểu trung quốc
+- and french chairs and potted palms and polar bear and tiger carpets i mean this was just crammed full of options sounds amazing
+- và ghế kiểu pháp, cây cọ trong chậu và thảm gấu bắc cực và hổ, ý tôi là nơi này chỉ có đầy đủ các lựa chọn nghe có  vẻ tuyệt vời
+- and then to talk a little bit more about this the stairway you can see over
+- và sau đó nói thêm một chút về điều này cầu thang bạn có thể thấy ở phía trên
+- here it's a very elegant stairway that leads up to the top floors to the bedrooms upstairs and the
+- đây là một cầu thang rất trang nhã dẫn lên các tầng trên cùng đến các phòng ngủ ở tầng trên và 
+- carpet over here is green right now but back in the day it used to be red so this hallway has been
+- thảm ở đây hiện có màu xanh lá cây nhưng trước đây nó từng có màu đỏ nên hành lang này đã được
+- renovated a couple of times over the years lovely detailed iron work on the handle of the stairway
+- tân trang lại một vài lần nhiều lần trong những năm công việc chi tiết bằng sắt đáng yêu trên tay nắm của cầu thang.
+- and also this floor has been changed out later on right that's correct um that was an addition
+- và tầng này cũng đã được thay đổi sau này đúng rồi đúng vậy ừm đó là phần bổ sung
+- from joe from yes from joe weidner so around 1915 he did a lot of renovations to the house
+- từ jore vâng vâng từ joe weidner nên khoảng năm 1915 ông ấy đã cải tạo rất nhiều đến ngôi nhà
+- and originally the floor was all white like you  see over here okay and he wanted to emulate 
+- và ban đầu sàn nhà toàn màu trắng như bạn có thể thấy ở đây được rồi và anh ấy muốn bắt chước
+- a lot of the beautiful french chateaus(lâu đài) and places yeah and this is a commonly themed yeah or same
+- nhiều lâu đài đẹp và cung điện xinh đẹp của pháp vâng và đây là một mẫu phổ biến theo chủ đề vâng hoặc tương tự
+- pattern over there ở đó
+- so hence(kê từ đây) why he implicated(liên luỵ) it here i see that sometimes indeed in the french castles 
+- vì vậy tại sao anh ấy lại liên quan đến nó ở đây tôi thấy rằng đôi khi thực sự trong các lâu đài của pháp
+- and then one more thing over here we have this encavement in the wall and at the top you can see
+- và sau đó một điều nữa ở đây chúng tôi có cái hốc này trong tường và ở trên đỉnh bạn có thể thấy 
+- a shell inside of there that would display an art piece but before that time
+- một lớp vỏ bên trong đó sẽ trưng bày một tác phẩm nghệ thuật nhưng trước thời điểm đó
+- before joe renovated this place there used to be a fireplace inside of here and this would
+- trước khi joe cải tạo cái này nơi từng có một lò sưởi bên trong đây và cái này sẽ
+- look completely different also the molding up top that we see there used to look completely defferent
+- trông hoàn toàn khác cũng như phần trên mà cùng mà chúng ta thấy ở đó từng trông hoàn toàn khác
+- 14:3
+- 
+- 
+- 
+- 
+- 
+- 
+
 
 
 
