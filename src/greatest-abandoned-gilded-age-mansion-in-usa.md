@@ -301,7 +301,26 @@
 - trước khi joe cải tạo cái này nơi từng có một lò sưởi bên trong đây và cái này sẽ
 - look completely different also the molding up top that we see there used to look completely defferent
 - trông hoàn toàn khác cũng như phần trên mà cùng mà chúng ta thấy ở đó từng trông hoàn toàn khác
-- 14:3
+- 14:03
+- look like what you see over here
+- giống như những gì bạn thấy ở đây
+- so the circle of white marble with the two right or red slabs on either side yeah exactly
+- vậy vòng tròn bằng đá cẩm thạch trắng với hai tấm bên phải hoặc đỏ ở hai bên vâng chính xác
+- and then one more thing in this room that we to look at
+- và sau đó một thứ nữa trong căn phòng này mà chúng ta phải xem
+- you see up top used to be a sky skylight and this would fill up the entire room with natural light
+- bạn nhìn thấy ở trên cùng từng là giếng trời và điều này sẽ lấp đầy toàn bộ căn phòng bằng ánh ságn tự nhiên
+- and make it just beautiful 
+- và làm cho nó trờ nên đẹp dễ
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
 - 
 - 
 - 
