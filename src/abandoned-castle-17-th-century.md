@@ -73,6 +73,10 @@
 - tôi muốn giới thiệu với các bạn một địa điểm rất đặc biệt ở quê hương tôi bỉ
 - a castle from 1633, from the 17th century
 - một lâu đài từ 1633 từ thế kỉ 17
-- 
-
+- with four centuries of history inside of it
+- với bốn thế kỷ lích sử bên trong nó
+- first owneds by a noble belton family
+- đầu tiên thuộc sở hữu của một gia đình quý tộc belton
+- later by the atkins family and their art collections and art dealerships around the world
+- sau đó là gia đình atkins và các bộ sưu tập nghệ thuật và đại lý nghệ thuật của họ trên khắp thế giới
 - 
