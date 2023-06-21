@@ -41,4 +41,38 @@
 - nhưng thời gian trôi qua
 - their paths deverged
 - con đường của họ chuyển hướng
+- marie-noel graduated from university and yearned for a different life
+- marie-noel đã tốt nghiệp đại học và khao khát một cuộc sống khác
+- so she moved to israel to pursue her studies of law
+- nên đã chuyển đến israel để theo đuổi ngành luật.
+- meanwhile trong khi đó
+- christoph took over the family bussiness and expanded upon his father's work
+- christoph tiếp quản công việc kinh doanh của gia đình và mở rộng công việc của cha mình
+- he was a man of many passions and pleasures with many lovers and a appetite for travel
+- anh ấy là một người đàn ông có nhiều đam mê và thú vui, có nhiều người tình và thích đi du lịch
+- he led a lavish lifestyle, traveling the world for his business and living life to the fullest
+- anh ấy có một lối sống xa hoa, đi khắp thể giới để kinh doanh, và sống hết mình.
+- but then, in 2017 the castle fell silent.
+- nhưng sau đó vào năm 2017, lâu đài chìm trong im lặng.
+- it was abandoned and left to the elements.
+- nó đã bị bỏ hoang và để lại cho các yếu tố.
+- the whereabouts of christoph and his sister marie-noel are unknown
+- vơi ở của christoph và em gái của anh ấy vẫn chưa được biết
+- what happend to the once-great atkins family?
+- điều gì đã xẳy ra với gia đình atkins vĩ đại một thời?
+- what secrets do the abandoned castle's wall hold?
+- những bức tường của lâu đài bị bỏ hoang nắm giữ bí mật gì?
+- join us as we explore the mysteries of this forgotten place and uncover
+- tham gia cùng chúng tôi khi chúng tôi khám phá những bí ẩn của nơi bị lãng quên này và khám phá
+- the dramatic and intriguing story of the people who once called it home
+- câu chuyện đầy kịch tính và hấp dẫn của những người từng gọi nó là nhà
+- 
+- welcome back, everybody, to the Bros of Decay. I'm lesley, and to day,
+- chào mừng mọi người đến trở lại với bros or decay. tôi là lesley, và hôm nay
+- i'm presenting to you a very special place from my home country, belgium
+- tôi muốn giới thiệu với các bạn một địa điểm rất đặc biệt ở quê hương tôi bỉ
+- a castle from 1633, from the 17th century
+- một lâu đài từ 1633 từ thế kỉ 17
+- 
+
 - 
