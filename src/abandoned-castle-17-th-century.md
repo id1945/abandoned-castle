@@ -79,4 +79,34 @@
 - đầu tiên thuộc sở hữu của một gia đình quý tộc belton
 - later by the atkins family and their art collections and art dealerships around the world
 - sau đó là gia đình atkins và các bộ sưu tập nghệ thuật và đại lý nghệ thuật của họ trên khắp thế giới
+- this is going to be a fantastic exploration, and I'm going to take you throungh all the ins and outs
+- đây sẽ là một chuyến khám phá tuyệt vời, và tôi sẽ đưa bạn khám phá tất cả những điều thú vị
+- of this beautiful, mysterious, and romantic place. This castle is absolutely massive, and i truly
+- về nơi xinh đẹp, bí ẩn và lãng mạn này. Lâu đài này cực kỳ đồ sộ, và tôi thực sự
+- adore the style of it
+- ngưỡng mộ phong cách đó
+- i would say that I can compare it with the castles that i've
+- tôi muốn nói rằng tôi có thể so sánh nó với những lâu đài mà tôi đã
+- seen before in my home country. I definitely love the enormous front door that we have over here
+- thấy trước đây ở quê hương mình, tôi chắc chắn thích cánh cửa trước khổng lồ mà chúng tôi có ở đây
+- you can see the door would open up
+- bạn có thể thấy cánh cửa sẽ mở ra.
+- to let the people and the guest inside of it
+- để mọi người và khách vào bên trong.
+- above there, we even have a lantern still bungling away
+- ở trên đó, chúng tôi thậm chi còn có một chiếc đèn lồng vẫn đang bung ra
+- and this is the massive courtyard surrounding this place
+- và đây là khoảng sân lớn bao quanh nời này
+- back in the time, the people would drive in with the horse and carriages.
+- quay ngược thời gian, mọi người sẽ lái xe bằng ngựa, và xe ngựa
+- They would park them in there
+- họ sẽ đậu xe ở đó
+- and later on, they would come in here with their cars
+- và sau đó họ sẽ đến đây bằng ô tô của mình.
+- the family atkins lived here were very rich and very influential and definitlely had a lot of cars that would be stored up here
+- gia đinh atkins đã sống ở đây rất giàu có và rất có ảnh hưởng và chắc chắn sẽ có rất nhiều ô to cất giữ ở đây.
+- i want to give you an overview of this place before we're going to venture inside of it
+- tôi muốn cung cấp cho bạn một cái nhìn tổng quan về địa điểm này trước khi chúng ta mạo hiểm vào bên trong
+- 5:8
+- 
 - 
