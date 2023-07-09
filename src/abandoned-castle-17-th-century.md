@@ -108,5 +108,55 @@
 - i want to give you an overview of this place before we're going to venture inside of it
 - tôi muốn cung cấp cho bạn một cái nhìn tổng quan về địa điểm này trước khi chúng ta mạo hiểm vào bên trong
 - 5:8
-- 
+- and show you all the ins and outs of this wondrous castle
+- và cho bạn thấy mọi chi tiết bên trong và bên ngoài của toà lâu đài kỳ diện này
+- wow, this outsite is absolutely magnificent but let's now venture into this place.
+- wow, bên ngoài này là hoàn toàn tráng lệ, nhưng bây giờ chúng ta hãy mạo hiểm vào nơi này
+- over here, everything is completely overgrown but has formed the sort of entrance into the
+- ở đây, mọi thứ đã hoàn toàn mọc um tùm nhưng đã tạo thành lối vào
+- basement of the castle. I have to be very careful because everything is loose here.
+- tầng hầm của lâu đài. Tôi phải rất cẩn thận vì mọi thứ ở đây đều lỏng lẻo
+- we immediately come into a very beautiful basement. All the architectural features
+- chúng tôi ngay lập tức đi vào một tầng hầm rất đẹp. tất cả các đặc điểm kiến trúc
+- of this place arre immediately present here.
+- của nơi này ngay lập tức có mặt ở đây.
+- wow i feel like i'm tryly comming into an
+- wow tôi có cảm giác như mình đang thực sự bước vào một
+- ancient belgian castle. lâu đài cổ kính của bỉ
+- over here, we got a doorway that says
+- ở đây, chúng tôi có một ô cửa có ghi
+- toiette on the door
+- nhà vệ sinh trên cửa
+- so i believe that gustav, when he had this castle when he had the business
+- vì vậy tôi tin rằng gustav, khi ông ấy có lâu đài này, khi ông ấy kinh doanh
+- he also used this place as a sort of art gallery, inviting guests over, maybe even letting them sleep here
+- ông ấy cũng đã sử dụng nơi này như một loại phòng trưng bày nghệ thuật, có thể mời khách ghé qua, có thể thậm chí để họ ngủ ở đây
+- i don't think it was a hotel in a time because there in no evidence of that at all/
+- tôi không nghĩ đó là một khách sạn, vào thời điểm đó vì không có bằng chứng nào về điều đó cả.
+- but i definitely think customers came here for the art galleries and stuff like that.
+- nhưng tôi chắc chắn rằng khách hàng đến đây để xem các phòng trưng bày nghệ thuật và những thứ tương tự.
+- let's have look inside of this room. Yeah, i can immediately see this castle being built in 1633
+- chúng ta hãy nhìn vào bên trong căn phòng này. vâng, tôi có thể thấy ngay lâu đài này được xây dựng vào năm 1633
+- those arches definitely tell the truth. i love the pillars as well in the middle of the room
+- những mái vòm đó chắc chắn nói lên sự thật. tôi cũng thích những cây cột ở giữa phòng.
+- i can definitely see from this side, if you come over here, they are completely made out off marble
+- tôi chắc chắn có thể nhì thấy từ phía này, nếu bạn đi qua đây, chúng được làm hoàn toàn bằng đá cẩm thạch.
+- you can see the nerves, the white nerves inside of there. sometimes you see fake pullars
+- bạn có thể thấy các dây thần kinh, các dây thần kinh màu trắng bên trong đó. Đôi khi bạn nhìn thấy những cột giả
+- for example, in the bank in chicago that i filmed. i will link that one up here. but in the bank in
+- chẳng hạn như trong ngân hàng ở chicago mà tôi quay phim. tôi sẽ liên kết cái đó lên đây. nhưng tỏng ngân hàng ở chicago
+- there were massive fake pillars, but of course, in europe, they are all real. and as you can see
+- có những cây cột giả khổng lồ, nhưng tất nhiên, ở châu âu, chúng đều là thật. Và như bạn có thể thấy
+- also this room used to be a toilet, a very, very primitive one as you can see as well
+- căn phòng này cững từng là nhà vệ sinh, một cái rất, rất thô sơ như bạn có thể thấy.
+- okay, let's go further into this basement, and here we come into some sort of a corridor with
+- được rồi, chúng ta hãy đi sâu hơn vào tầng hầm này, và ở đây chúng ta đi vào một loại hành lang nào đó
+- the stairay here to the left leading up into the castle. I don't know what this door is
+- cầu thang ở đây bên trái dẫn lên lâu đài. tôi không biến cánh cửa này là gì.
+- seem to be locked, but again, i love the two ways that we have in this place, all made out of made
+- dương như đã bị khoá, nhưng một lần nữa, tôi thích hai con đương mà chúng ta có ở nơi này, tất cả đều được làm bằng đá cẩm thạch.
+- of this rich stone, as you can see. Very sturdy and have been standing here for four centuries
+- của loại đá cẩm thạch giàu có này. như bạn có thể thấy. Rất chắc chắn và đã đứng ở đây trong bố thế kỷ
+- 7:44
+
 - 
