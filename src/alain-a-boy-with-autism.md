@@ -9,7 +9,7 @@ ______                        _ _   _                   _   _
              |___/
 ```
 
-[![VIDEO](https://img.youtube.com/vi/J4uGmONRwHA/maxresdefault.jpg)](http://www.youtube.com/watch?v=J4uGmONRwHA)
+[![VIDEO](https://img.youtube.com/vi/QKr0J2uhtvE/maxresdefault.jpg)](http://www.youtube.com/watch?v=QKr0J2uhtvE)
 
 
 - okay everybody welcome back to the bros of decay
