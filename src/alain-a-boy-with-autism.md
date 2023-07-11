@@ -1,0 +1,168 @@
+```
+    __                                                   __   __  __      ____
+   / /   __  ______  ____  ___ _      ______  ____  ____/ /  / / / /___ _/ / /
+  / /   / / / / __ \/ __ \/ _ \ | /| / / __ \/ __ \/ __  /  / /_/ / __ `/ / / 
+ / /___/ /_/ / / / / / / /  __/ |/ |/ / /_/ / /_/ / /_/ /  / __  / /_/ / / /  
+/_____/\__, /_/ /_/_/ /_/\___/|__/|__/\____/\____/\__,_/  /_/ /_/\__,_/_/_/   
+      /____/
+```
+
+[![VIDEO](https://img.youtube.com/vi/J4uGmONRwHA/maxresdefault.jpg)](http://www.youtube.com/watch?v=J4uGmONRwHA)
+
+
+- okay everybody welcome back to the bros of decay
+- được rồi, tất cả mọi người đều chào mừng trở lại bros of decay
+- i'm leslay and today i'm going to take you on another adventure in the south of France.
+- tôi là leslay và hôm nay tôi sẽ đưa bạn đến một cuộc phưu lưu khác ở miền nam nước pháp
+- we are making ourselves in the backyard
+- chúng tôi đang làm chính mình trong sân sau
+- of an abandoned house that has been abandoned for nine years right now
+- của một ngôi nhà hoang đã bị bỏ hoang chín năm ngay bây giờ.
+- my friends are making it over the fence right now.
+- bạn bè của tôi đang vượt qua hàng rào ngay bây giờ
+- we have to be a little bit careful because people are playing some tennis back there
+- chúng tôi phải cần thận một chút vì mọi người đang chơi quần vợt ở đó.
+- but we are on the property right now we're gonna check out this abandoned place
+- nhưng chúng tôi đang ở trong khu nhà ngay bây giờ, chúng tôi sẽ kiểm tra nơi bị bỏ hoang này.
+- okay everybody is in? let's go...
+- được rồi mọi người vào chứ? đi thôi
+- okay this is the house everybody
+- được rồi đây là ngôi nhà của mọi người
+- let's try to find an entrance into this place
+- hãy cố gắng tìm một lối vào nơi này
+- we found the entrance and it's that one over there the little tiny window in the corner
+- chúng tôi đã tìm thấy lối vào và cái cửa sổ nhỏ bé ở góc kia
+- is the entrance to this place
+- là lối vào nơi này
+- oh that's pretty difficult
+- ồ điều đó khá khó
+- okay, i'm inside let me try to open this one up! So this is what i'm dealing with
+- được rồi tôi đang ở trong để tôi thử mở cái này ra!. vì vậy đây là những gì tôi đang giải quyết
+- 1.21
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
