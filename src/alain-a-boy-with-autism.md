@@ -40,9 +40,55 @@ ______                        _ _   _                   _   _
 - ồ điều đó khá khó
 - okay, i'm inside let me try to open this one up! So this is what i'm dealing with
 - được rồi tôi đang ở trong để tôi thử mở cái này ra!. vì vậy đây là những gì tôi đang giải quyết
-- 1.21
-- 
-- 
+- i just opened the door over here in the basement for everybody so now everybody can come into the house
+- tôi vừa mở cửa ở tầng hầm này cho mọi người nên bây giờ mọi người có thế vảo trong nhà
+- and we can start exploring this one so let's start the video
+- và chúng tôi có thể băt đầu khám phá cái này, vì vậy hãy bắt đầu video
+- mr raymond and mrs. marielle a rather(hơn là) happy but unfulfilled(chưa hoàn thành) couple
+- ông raymond và bà marielle là một cặp vợ chồng khá hạnh phúc nhưng không viên mãn
+- they had been together since a very young age and always had a dream to raise(nâng lên) a family
+- họ bên nhau từ khi còn rất trẻ và luôn có ước mơ xây dựng một gia đình
+- but unfortunately for them, they seemed to be infertile
+- nhưng không may cho họ, họ dường như bị vô sinh
+- they reached(đạt đến) an elderly(người già) age and thought it would never happen
+- họ đã đén tuổi già và những tưởng điều đó sẽ không bao giờ sảy ra.
+- but without notice, mrs marielle got pregnant and conceived a child their son alai was born
+- nhưng không hề hay biết, bà marielle đã mang thai và mang thai đứa con trai của họ alain đã được trào đời
+- but unfortunately, he was diagnosed(chuẩn đoán) with a severe
+- nhưng không may, anh ấy được chuẩn đoán mắc
+- form of autism(bệnh tự kỷ) and had to be taken care of for the rest(nghỉ ngơi) of his life
+- chứng tự kỉ dạng nặng và phải được chăm sóc suốt đời
+- this was of course not possible for mr raymond and mrs marielle
+- điều này dĩ nhiên là không thể đối với ông raymond và bà marielle
+- because they were  already at a pretty advanced age.
+- bởi vì họ đã ở độ tuổi khá cao
+- mr raymond passed away at the age of 70 years old
+- ông raymond qua đời ở tuổi 70 
+- when alain was only 16 and marielle passed away eight years later leaving alain alone
+- khi alin mới 10 tuổi và marielle qua đời sau 8 năm sau đó để lại một mình alain
+- he was not able to take of himself and was therefore sent to an institution where he remains
+- anh ấy đã không thể tự chăm bản thân và do đó được gửi tới một tổ chức mà anh ấy vẫn còn.
+- to this day, he is also unable to take care of the home and it slowly gét taken over by nature
+- cho đến ngày nay, anh ta cũng không thể chăm sóc nhà và nó dần dần được tiếp quản bởi thiên nhiên
+- let's explore his house today with the greatest(vĩ đại nhất) respect(sự tôn trọng) and let's uncover their life's story
+- hãy cùng khám phá ngôi nhà của anh ấy, ngày hôm nay với sự tôn trọng lớn nhất và hãy khám phá cây chuyện cuộc đời của họ
+- so everybody, we made it inside of this place it was pretty difficult as you saw
+- vì vậy tất cả mọi người, chúng tôi đã thực hiện bên trong nơi này, nó khá khó khăn như bạn thấy
+- but the story hehind this place like you just heard is very very sad.
+- nhưng câu chuyện đằng sau nơi này như bạn vừa nghe thì rất xót xa
+- the son alain is still alive(còn sống) at this point that's why we want to give this place the uttermost(tận cùng nơi này)
+- con trai alain vẫn còn sông tại thời điểm này, đó là lý do tại sao chúng tôi muốn dành cho nơi này 
+- respect this boy has been through a very tough life
+- tôn trọng tối đa mà cậu bé này đã trải qua một cuộc sống rất khó khăn
+- he lost his father raymond he lost his mother marielle only eight year later
+- anh ấy mất cha raymond, mất mẹ marielle chỉ tam năm sau đó.
+- and now he's alone in this  world somewhere in the caring home
+- và bây giờ anh ấy một mình trên thế giới này ở đâu đó trong ngoi nhà chăm sóc
+- probably very close to here but not able to visit this place anymore
+- có lẽ rất gần đây nhưng không thể đến thăm nơi này nữa.
+- i feel for him and i want to pervade this through this documentary
+- tôi cảm thấy dành cho anh ấy và toi muốn trải nghiệm điều này qua bộ phim tài liệu này
+- 4:37
 - 
 - 
 - 
