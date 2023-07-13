@@ -89,6 +89,55 @@ ______                        _ _   _                   _   _
 - i feel for him and i want to pervade this through this documentary
 - tôi cảm thấy dành cho anh ấy và toi muốn trải nghiệm điều này qua bộ phim tài liệu này
 - 4:37
+- and give him one last oat to his life
+- và tặng anh ấy một lần cuói cùng trong đời.
+- let's start exploring this place let's see what's left behind of his life
+- hãy bắt đầu khám phá nơi này để xem những gì còn sót lại sau cuộc đời của anh ấy
+- okay, i'm ready for it i hope you are as well let's see what's left behind of this place
+- được rồi, tôi sẵn sàng cho nó, tôi hy vọng bạn cũng vậy, hãy xem những gì còn sót lại của nơi này.
+- we, of course, start with a very cozy sitting area
+- chúng tôi, dĩ nhiên, bắt đầu với một khu vực ngồi rất ấm cúng
+- i just sat in that chair and it was wonderful to sit in very very cozy
+- tôi chỉ ngồi trên chiếc ghế đó và thật tuyệt vời khi được ngồi trong rất ấm cúng
+- we have like some sort of wool(len) knitted(dệt) painting very nice of a victorian
+- chúng tôi thích một bức trang dệt kim bằng len nào đó rất đẹp về một khu rừng tươi tốt ở victoria
+- two people sitting in there a man playing the guitar
+- hai người ngồi trong đó một người đàn ông chơi guitar
+- i'm going to place this back I don't think it deserves(xứng đáng) to be on the ground and then on the wall 
+- tôi sẽ đặt cái này trở lại. tôi không nghĩ nó xứng đáng ở trên mặt đắt và sau đó trên tường
+- over here we have this incredible gold-plated mirror that just presents(quà tặng) this room but has now
+- ở đây chúng tôi có một chiéc gương mạ vàng đáng kinh ngạc này chỉ trưng bày căn phòng này nhưng bây giờ
+- been decaying over the last nine years that the alain has not been able to come to this place
+- đã bị mục nát trong chín năm qua, rằng alain đã không thể đến nơi này
+- wow, the cushions are on the floor everything is falling apart
+- wow, đệm trên sàn mọi thứ đang rơi ra
+- we just opened these shutters(cửa chớp) "to let some"(để cho một số) light into the house for filming but of course
+- chúng tôi chỉ mở những cửa chớp này để lấy một chút ảnh sáng vào nhà để quay phim nhưng tất nhiên.
+- we will close them again at the end of the video to save this house
+- chúng tôi sẽ đóng chúng lại ở cuối video để cứu ngôi nhà này.
+- i am pretty sure that there will be nothing done with this place
+- tôi khá chắc chắn rằng sẽ không có việc gì xẩy ra với nơi này.
+- because it's still in the ownership(quyền sở hữu) of alain and as long as he's not able to say
+- bởi vì nó vẫn thuộc quyền sở hữu của alain và chừng nào anh ấy không thể nói.
+- that he wants to sell it them it will stay like this forever
+- răng anh ấy muốn bán nó thì nó sẽ ở như thế này mãi mãi
+- over here, we have some books above the radiator(tản nhiệt) let's look at one of those
+- ở đây, chúng tôi có một số cuốn sách phía trên bộ tản nhiệt, hãy xem một trong số đó.
+- it's french novel with some illusteations of castles and
+- đó là một cuốn tiểu thuyết của pháp với một số hình mình hoạ về các lâu đài và
+- over here we can see this is the last page that they were able to read in this book
+- qua đây chúng ta có thể thấy đây là trang cuối cùng mà họ có thể đọc trong cuốn sách này
+- memories
+- ký ức
+- wonderful booklet
+- tập sách tuyệt vời
+- this glass almost(hầu hết) falls down oh my god
+- cái kính này suýt rơi xuống trời ơi
+- 6:45
+- 
+- 
+- 
+- 
 - 
 - 
 - 
