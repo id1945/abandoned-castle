@@ -134,11 +134,53 @@ ______                        _ _   _                   _   _
 - this glass almost(hầu hết) falls down oh my god
 - cái kính này suýt rơi xuống trời ơi
 - 6:45
-- 
-- 
-- 
-- 
-- 
+- and then over here we had(đã có) the sitting area where(nơi) raymond mariele and the small chair for valet
+- và sau đó ở đây chúng tôi đã có một khu vực ngồi nơi raymond mariele và chiếc ghế nhỏ cho người phục vụ
+- is left behind they would sit here together in the evening
+- bị bỏ lại phía sau họ sẽ ngồi cùng nhau vào buôi tối
+- most likely they were a very lovely family very loving but now it's all gone
+- rất có thể họ là một gia đình đáng yêu rất yêu thương nhưng bây giờ tất cả đã biến mất
+- you can even see in the headrest over here
+- bạn thậm chí có thể nhìn thấy trong tựa đầu ở đây
+- this is where the head would rest ít's the print of their head wow
+- là nơi đầu sẽ nghỉ ngơi, đó là bản in của cái đầu của họ
+- a fireplace behind here with still some very very big blocks of wood left in there
+- một lò sưởi đằng sau đây vẫn còn sót lại một số khối gỗ lớn
+- the fire screen in front of it
+- màn chắn lửa trước mặt
+- it's compeletely crumbling apart(riêng biệt) a bellow(gầm lên) next to it to light up the fireplace
+- hoàn toàn vỡ vụn một bên cạnh nó để thắp sáng lò sưởi
+- and then we have this little drawer there's nothing in there anymore
+- và sau đó chúng tôi có ngăn keo nhỏ này, không còn gì trong đó nữa.
+- some book on top and even a radio where they could listen to music in the evening
+- một số quyển sách trên đàu và thậm chí cả một chiếc đài phát thanh để họ có thể nghe nhạc vào buổi tối
+- lovely they were also very literate(biết đọc) people so raymond and marielle were both very old
+- đáng yêu, họ cũng là những người rất biết chữ nên cả ramond và marielle đều đã rất già
+- when they got alain and i think his life was actually maybe a mistake(sai lầm) that he came to earth
+- khi họ có alain và tôi nghĩ cuộc đời của anh ấy thực sự có thể là một sai lầm khi anh ấy đến trái đất
+- but of course they cared very good for him the way they could  at their advanced aged of course
+- nhưng tất nhiên họ quan tâm rất tốt cho anh ấy theo cách họ có thể ở giai đoạn học cao tât nhiên.
+- a bench to the side here and this device actually
+- một chiếc ghế dài ở bên cạnh đây và thiết bị này thực sự
+- is a very very interesting device it's now broken off there would be another part on here
+- là một thiết bị rất thú vị, bây giờ nó bị hỏng sẽ có một bộ phận khác ở đây
+- but you would put hot coals(than đá) may be from the stove or something else in here and
+- nhưng bạn sẽ đặt than nóng có thể từ bếp hoặc thứ gì đó ở đáy 
+- this would be used to heat up the end of your bed in the evening very fascinating device
+- cái này sẽ được sử dụng để sưởi ấm cuối giường của bạn vào buổi tối thiết bị rất hấp dẫn
+- even all the flowers that marielle put here at the end of the line of her life are left behind
+- thậm chí tất cả hoa mà marielle đặt ở đây vào cuối dòng đời của cô ấy cũng bị bỏ lại
+- wow, i love this setup over here all the books in there
+- chà, tôi yêu thích thiết lập này ở đây toàn bộ những quyển sách ở đó
+- and over here some dried flowers that they got from the garden
+- và đằng này một số hoa khô mà họ lấy từ vườn
+- let's put it back nicely
+- hãy đặt nó trở lại đẹp đẽ
+- and to the end of here, we got this clock face
+- và kết thúc ở đây, chúng ta có chiếc đồng hồ mặt
+- copper clock face the time stopped at half-past three half-past two no two o'clock
+- mặt đồng hồ bằng đồng thời gia dừng lại ở 3 rưỡi không hai giờ
+- 9:19
 - 
 - 
 - 
