@@ -181,10 +181,57 @@ ______                        _ _   _                   _   _
 - copper clock face the time stopped at half-past three half-past two no two o'clock
 - mặt đồng hồ bằng đồng thời gia dừng lại ở 3 rưỡi không hai giờ
 - 9:19
-- 
-- 
-- 
-- 
+- execuse me one o'clock i'm one o'clock actually it's like I can't read the clock anymore
+- tha cho tôi 1 giờ tôi 1 giờ thực sự giống như tôi không thể đọc đồng hồ nữa.
+- and then we have cold plating all over it fascinating
+- và sau đó chúng tôi có một lớp mạ lạnh lên khắp nó thật hấp dẫn
+- and that leads to the bedrooms that we will see later in the video but first the other side
+- và dẫn đến các phòng ngủ mà chúng ta sẽ thấy ở phần sau của video nhưng trước tiên là phía bên kia
+- and then over here we have the dining area where the family would be together in the evening
+- và sau đó ở đây chúng ta có khu vực ăn uống nơi gia đình sẽ cùng nhau vào buổi tối
+- and have some nice meals and one chair is put here to the side
+- và có một số bữa ăn ngon và một chiếc ghế được đặt ở đây ở bên cạnh
+- what do we have over here?
+- chúng ta có gì ở đây?
+- These look like drawings of a house architectural drawings of a house
+- chúng trông giống như bản vẽ của một ngôi nhà bản vẽ của một ngôi nhà
+- well they even drew oh this is the house itself look at this is the facede of the house
+- mà họ thậm chí đã vẽ oh đây là chính ngôi nhà nhìn vào đây là mặt tiền của ngôi nhà
+- you can see with the two windows and these two over here one-two windows are these windows here
+- bạn có thể nhìn thấy với hai cửa sổ và đó là hai cửa sổ này ở đây, một hai cửa sổ là những cửa sổ này
+- behind us okay this was their architectural drawing of the house left in here wow
+- đằng sau chúng tôi được rồi. đây là bản vẽ kiến trúc của ngôi nhà để lại đây wow
+- it's actually very cool to find these are probably all documents from their house all left here
+- thật sự rất tuyệt vời khi tìm thấy đây có lẽ là tất tài liệu từ ngôi nhà của họ tất cả bị bỏ lại đây
+- it is built in 1900 it says on here so that's the day when marielle
+- nó được xây dựng vào nẳm 1900 nó nói ở đây vì vậy đó là ngày mà marielle
+- and raymond started to live in this place
+- và raymond bắt đầu sống ở nơi này
+- there are even still some bottles of liquor that still have content in them left on the table
+- thậm chí cố một số chai rượu vẫn còn nguyên vẫn được để trên bàn
+- a nice picture of a fancy dinner
+- một bức tranh đẹp về một bữa tối lạ mắt
+- okay, i'm gonna go further to this side, because here we have a knitting supply box she probably
+- được rồi, tôi sẽ đi xa hơn về phía này, bởi vì ở đây chúng tôi có một hộp đựng đồ đan mà cô ấy có thể đã
+- used when the boys ripped their clothes to fix it all some scissors different kinds
+- sử dụng khi các chàng trai xé quần áo của họ để sửa nó bằng một số loại kéo khác nhau
+- let's close that up nicely let's move further through the house
+- hãy đóng lại cẩn thận, chúng ta hãy di chuyển xa hơn qua ngôi nhà
+- a wonderful teapot was left behind
+- một ấm trà tuyệt vời đã được bỏ lại
+- let's see what kind of music taste that these people had
+- hãy xem những người này có gu âm nhạc gì
+- bernard solvent have this one different kind of record black blood
+- dung môi bernard có một loại máu đne thu âm khác nhau
+- i don't know any of these kinds of music but if somebody knows there you go
+- tôi không biến bất kì loại âm nhạc nào nhưng nếu có ai đó biết ở đó bạn sẽ.
+- this is the taste of these people again a wonderfully designed mirror above it
+- thấy đó là sở thích của những người này một lần nữa, một tấm gương được thiết kế tuyệt vời ở phía trên nó
+- this is a very very special television is this actually a television it looks more
+- đây là một chiếc tivi rất đặc biệt, đây thực sự là một chiếc tivi nó trông
+- like a surveillance television or somthing like that or a very very old kind because this
+- giống như một chiếc tivi giám sát hoặc một thứ gì đó tương tự hoặc một loại rất cổ vì nó
+- is not even six inches i think it' five inches or something like that
 - 
 - 
 - 
