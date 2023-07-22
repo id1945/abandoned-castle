@@ -232,7 +232,7 @@ ______                        _ _   _                   _   _
 - like a surveillance television or somthing like that or a very very old kind because this
 - giống như một chiếc tivi giám sát hoặc một thứ gì đó tương tự hoặc một loại rất cổ vì nó
 - is not even six inches i think it' five inches or something like that
-- 
+- 12:34
 - 
 - 
 - 
