@@ -316,7 +316,7 @@ ______                        _ _   _                   _   _
 - ồ, một miếng vải giặt vẫn còn treo ở đây
 - and i don't know why people do this but these are like lables of different kinds of yeah ingredients
 - và tôi không biêt tại sao mọi người làm điều này nhưng chúng giống như nhãn của các loại nguyên liệu phù hợp khác nhau
-- 
+- 17:19
 - 
 - 
 - 
