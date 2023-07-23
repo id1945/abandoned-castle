@@ -272,8 +272,50 @@ ______                        _ _   _                   _   _
 - let me see if i can pull this one out this one doesn't seem to have a secret compartment
 - hãy để tôi xem nếu tôi có thể kéo cái này ra, cái này dường như không có ngăn bí mật
 - 14:42
-- 
-- 
+- compartments in there where you could store money inside
+- ngăn bí mật trong đó nơi bạn có thể cất tiền bên trong
+- but come a bit closer over here we can see the pictures of the household
+- nhưng đến gần hơn một chút, chúng ta có thể thấy những bức tranh của gia đình
+- this is the front of the house you can see raymond sitting here together with marielle
+- đây là mặt trước của ngôi nhà mà bạn có thể thấy Raymond đâng ngồi ở đây cùng với marielle
+- excuse me i find that name very difficult and this is their son their autistic son, no way
+- xin lỗi tôi tìm thấy cái tên rất khó hiểu và đây là con trai của họ, đứa con trai tự kỷ của họ, không thể nào
+- here he comes backs again it comes back again you can see this is the same child wow fascinating
+- ở đây anh ấy trở lại một lần nữa nó trở lại một lần nữa, bạn có thể thấy đây là đứa trẻ tương tự wow  hấp dẫn
+- even more picture of the house from afar before it was totally overgrown crazy
+- thậm chí nhiều hình ảnh của ngôi nhà từ xa trước khi nó hoàn toàn mọc um tùm
+- and above here look at this television
+- và ở phía trên nhìn vào chiếc tivi này!
+- is this even a television?
+- đây có phải là một chiếc tivi không?
+- but it looks very strange(lạ lùng) to me it has these dots in there can you see these on camera
+- nhưng nó trông rất lạ đối với tôi. nó có những chấm trong đó bạn có thể nhìn thấy những chấm này trêm camera
+- i don't know how this works but this is probably a very old piece with a microscope next to it
+- tôi không biết nó làm việc như thế nào, những có lẽ đây là một mảnh rất cũ có kính hiển vi bên cạnh
+- i actually just don't know their occupation(nghê nghiệp) of these people and over here on the wall
+- tôi thực sự không biết nghề nghiệp cuẩ họ đối với những người này và đằng này trên bức tường
+- we have a nice drawing
+- chúng tôi có một bức vẽ đẹp
+- oh, i love this upholstery chair that's here in the corner of the room
+- oh, tôi yêu chiếc ghế bọc này ở góc phòng
+- this is a very very big chair actually
+- dây thực sự là một chiếc ghế rất là lớn
+- wow, the upholstery on this is amazing and the carvings and evening and that
+- wow, chiếc ghế bọc bên ngoài này thật tuyệt vời và những nét chạm khắc và mọi thứ và điều đó
+- leads us everybody let's test out electricity first sometimes that works but this time not
+- hướng dẫn chúng tôi mọi người hãy thử điện nước trước đôi khi có hoạt động nhưng lần này thì không
+- but that leads us into the ketchen that's also completely left behind
+- nhưng điều đó dẫn chúng tôi vào nhà bếp cũng hoàn toàn bị bỏ lại phía sau
+- look at the mirror look at the window over here that's now completely green after all those years
+- hãy nhìn vào gương, hãy nhìn vào của sổ đằng này bây giờ đã hoàn toàn xanh tươi sau ngần ấy năm
+- but the curtains are still present on it
+- nhưng những tấm rèm vãn hiện diện ở trên đó
+- here we have the record plays where the records that are in the living room would be plays on
+- ở đây chúng tôi có trình phát điã nơi các bản ghi trong phòng khách sẽ đươc phát
+- wow a washing cloth still hanging here
+- ồ, một miếng vải giặt vẫn còn treo ở đây
+- and i don't know why people do this but these are like lables of different kinds of yeah ingredients
+- và tôi không biêt tại sao mọi người làm điều này nhưng chúng giống như nhãn của các loại nguyên liệu phù hợp khác nhau
 - 
 - 
 - 
