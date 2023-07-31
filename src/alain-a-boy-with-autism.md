@@ -317,8 +317,25 @@ ______                        _ _   _                   _   _
 - and i don't know why people do this but these are like lables of different kinds of yeah ingredients
 - và tôi không biêt tại sao mọi người làm điều này nhưng chúng giống như nhãn của các loại nguyên liệu phù hợp khác nhau
 - 17:19
-- 
-- 
+- that you would use in the house, chicken says over here, and some mayonnaise and stuff like that.
+- bạn sẽ sử dụng trong ngôi nhà, gà nói ở đây, và một số mayonnaise và những thứ gì đó tương tự
+- but maybe thay put it all over on there to remember what they like and what they bought
+- nhưng có lẽ họ đặt tất cả lên đó để ghi nhớ tất cả những gì họ thích và những gì họ đã mua
+- wow an exhauster with all the spices(gia vị) still above there
+- wow một ống khói với toàn bộ tất cả các loại gia vị vẫn còn ở trên đó
+- we also have a calendar over here on the wall it says the year 2012 on there it's like
+- chúng tôi cúng có một cuốn lịch ở đây trên tường nó có ghi năm 2012 trên đó, nó giống như
+- the different kinds of mushrooms that you could find around here that most likely are edible
+- các loại nấm khác nhau mà bạn có thể tìm thấy quanh đây rất có thể ăn được
+- see on this side over here they did it again but these are stickers from different types of fruits
+- xem bên này ở đay họ đã làm lại những miếng dán từ các loại trái cây khác nhau
+- this is empty i actually don't want to look at it and this calendar over here is from 2013
+- cái này rỗng tôi thực sự không muốn nhìn vào và đây là cuốn lịch này là của năm 2013
+- and then behind us, we even have a typewwriter left behind
+- và sau đó, chúng tôi thậm chí còn bỏ lại một chiếc máy đánh chữ
+- a little vase with some flowers marielle was totally in love with flowers
+- môt chiếc bình nhỏ với một vài bông hoa marielle đã hoàn toàn yêu hoa
+- 18:25
 - 
 - 
 - 
