@@ -336,6 +336,10 @@ ______                        _ _   _                   _   _
 - a little vase with some flowers marielle was totally in love with flowers
 - môt chiếc bình nhỏ với một vài bông hoa marielle đã hoàn toàn yêu hoa
 - 18:25
+- look over here we have again such a strange(lạ lùng) television comming back, this is some sort
+- nhìn lại đây, chúng ta lại có một chiếc tivi kì lạ như vậy trở lại, đây là một loại
+- of device to look at a microscope with you can connect it up to a microscope
+- thiết bị để xem kính hiển vi, mà bạn có thế kết nối nó với kính hiển vi
 - 
 - 
 - 
