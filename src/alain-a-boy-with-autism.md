@@ -375,19 +375,96 @@ ______                        _ _   _                   _   _
 - throughout the house she had flower wallpaper because she was really in love with flowers
 - khắp ngôi nhà của cô ấy có hình nền bưởi vì cô ấy thực sự yêu hoa
 - 20:48
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- very tiny basement first have one storage room with lots of books and newspapers stored
+- tầng hầm rất nhỏ đầu tiên có một phòng kho chứa rất nhiều sách báo
+- then to this side was the garade not very intersting a litle working place
+- sau đó ở phía bên này là một nhà để xe không thú vị lắm, một nơi làm việc nhỏ
+- for raymond and you can see over there there's a computer left behind a very old computer and
+- cho raymond và bạn có thể thấy ở đó có một chiếc mấy tính bỏ lại chiếc máy tính rất cũ và
+- again more radio recorder so something with electronics this man has done in his life
+- một máy ghi âm nữa, vì vậy một điều gì đó với đồ điện tử mà người đàn ông này đã làm được trong đời
+- here is this working room oh come have a look at this!
+- đâu là một phòng làm việc ồ, hãy xem này
+- this was his big working room with all his different types of equipment meters keyboards
+- đây làm phòng làm việc lớn với tất cả các loại bàn phím đồng hò đo thiết bị khác nhau
+- for the year 2004 he was one of the ealiest people whereinto computers it was called the geek
+- năm 2004 anh ấy làm một trong những người sơm nhất mà máy tính được gọi là máy tính
+- i'm a computer engineer as well from my degree so i really love to see these type of things
+- tôi cũng là một kỹ sư máy tính giống như vậy từ bằng cắp của mỉnh nên tôi thực sự thích nhìn thấy những thứ này
+- monitors, computers, keyboards, floppy disks
+- màn hình, máy tính, bàn phim, đĩa mềm
+- all left here wow probably even magazines that relate to his passion(niềm đam mê) of computers
+- tất cả bị bỏ lại ở đây, wow có lẽ thậm chí cả những tạp chí liên quan đến niềm đam mê máy tính của anh ấy.
+- we have construction magazines over and
+- chúng tôi có những tạp chí xây dựng
+- more construction magazines, so all these magazines almost yeah yet all of the construction
+- nhiều tạp chí xây dựng nữa, vì vậy tất cả tạp chí này hầu hết đều có tất cả các công trình xây dựng
+- all these magazines that are in here are realted(đánh giá cao) to construction, so maybe mr raymond
+- tất cả cách tạp chí mà ở đây liên quan đến xây dựng, vì vậy có thể ông raymond
+- okay those are some nice artifacts to find
+- được tồi đó là một số hiện vật tốt để tìm
+- and then we have one last room in this basement
+- và sau đó chúng tôi có một phòng cuối cùng trong tầng hầm này
+- this was marielle her washing room see a sink over here washing machine left behind
+- đây là phòng giặt của marielle. nhìn thấy một chiếc bồn rửam ở đây là một chiếc máy giặt bị bỏ lại
+- and even some blankets that used to go on the bed while still hanging here
+- và thậm chí một số chăn được sử dụng trên giường vẫn còn treo ở đây.
+- and now we come back over here into the hallway of the place
+- và bây giờ chúng ta trở lại đây, vào hành lang của nơi này
+- where we can see even more mirror on the wall but these have unfortunately broken
+- nơi chúng ta có thể thấy nhiều tấm gương hơn nữa trên tường nhưng chúng đã không may bị vỡ
+- and this upholstery chair as well here on the floor her knitting machine is still lying there
+- và chiếc ghế bọc cũng như trên sàn nhà, chiếc máy dệt vẫn đang nằm ở đó
+- and that's going to take us up this stairway a small halfway stairway we
+- và điều đó sẽ đưa chúng tôi lên cầu thang, một cầu thang nhỏ nữa chừng mà chúng ta
+- call this a bungalow in belgium , i don't know if that's the exact name for a place like this
+- goi đây làm một ngôi nhà gỗ ở bỉ, tôi không biết có phải chính xác tên cho một nơi này như thế hay không?
+- geography books from all around the world
+- những cuốn sách địa lý từ khắp nơi trên thế giới
+- portugal these are from 2002 so that's before the time that came on passed away
+- bồ đào nhà, những cuốn sách này từ năm 2002 vì vậy trước thời điểm đó qua đời
+- so marielle and alain left these books over here after raymond passed
+- vì thế marielle và alain bỏ lại những cuốn sách ở đây sau khi raymond qua đời
+- i don't know what happened here on the floor but
+- tôi không biết điều gì xảy ra trên sàn nhà nhưng
+- i think somebody has come in here and looked for valuables
+- tôi nghĩ có ai đó đã vào đây và tìm kiếm những thứ có giá trị
+- this is one of the bedroooms that's left in this place
+- đây là một trong những căn phòng ngủ mà bỏ lại ở nơi nầy
+- as you can see completely overthrown nothing left of it
+- như bạn có thể thấy hoàn toàn bị lật đổ không còn lại gì
+- wow come in here, come have a look at the wardrobe
+- wow lại đây, xem tủ quần áo nào
+- are you okay? thạt's pretty difficult you can give me the camera for a moment
+- bạn có ổn kông? điều đó khá khó, bạn có thể đưa máy qua cho tôi một lát
+- and i can show the vỉewers the clothes that are left in here
+- và tôi có thể cho xem quần áo còn sót lại ở đây
+- let's see these look like women's clothes if i'm right, yês they do
+- hãy xem những thứ này giôgns quần áo của phụ nữa nếu tôi nói đúng, đúng. 
+- so these were marielles's closthes this was probably her bedroom until she passed aways in 2012
+- vậy đây là quần áo của marielles. đây có lẽ là phòng ngủ của cô ấy cho đén khi cô ấy qua đời vào năm 2012
+- wow the bed with all the blankets still on there
+- wow chà chiếc giường vẫn còn nguyên chăn
+- and then we have this desk over here again completely filled with books
+- và sau đo chúng tôi có chiếc bàn ở đây lại hoàn toàn chứa đầy sách
+- and here she is oh okay i didn't mean to do that
+- và ở đây cô ấy chà được rồi tôi không có ý làm điều đó
+- let's put that back i'm gonna put that back afterward
+- hãy đăt chúng trở lại tôi sẽ đặt lại sau đó
+- but you can see here she is with here child alain when he was just born
+- nhưng bạn có thể thấy ở đây cô ấy đã ở cùng với đứa con của mình alain khi anh ấy vừa mới sinh ra
+- you can see she was probably already in her 60s back then
+- bạn có thể thấy cô ấy có lẽ ngoài 60 tuổi
+- one more room here to the left but you can show the people in there there's to mucnh mold to go
+- một phòng nữa ở đây bỏ lại nhưng bạn có thể cho những người trong đó thấy có quá nhiều nâm mốc 
+- into this room but we're not gonna venture in there because it's not very interesting
+- vào phòng này nhung chúng ta không mạo hiểm vào đó vì không thú vị lắm
+- you can see a bed frame over there this might have probably been also a bedroom back in the day
+- bạn có thể thấy một khungn giường ở đằng kia, điều này có thể có cũng là một phòng ngủ ngày trước
+- here was their bathrooom they only had a bathtub no shower of course a showerhead over there
+- đây là phòng tắm họ chỉ có bồn tắm không có vòi hoa sen, tất nhiều có vòi hoa sen
+- but you have some shampoos left behind and some medicine and other applicances probably
+- nhưng bạn có còn sót một số gầu gội đầu và một số loại thuốc và các thiết bị khác có lẽ.
 - 
 - 
 - 
