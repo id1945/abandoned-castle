@@ -374,7 +374,7 @@ ______                        _ _   _                   _   _
 - okay chúng ta sẽ lần đầu tiên nhìn vào tầng hầm của nơi này, bạn sẽ thấy
 - throughout the house she had flower wallpaper because she was really in love with flowers
 - khắp ngôi nhà của cô ấy có hình nền bưởi vì cô ấy thực sự yêu hoa
-- 
+- 20:48
 - 
 - 
 - 
