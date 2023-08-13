@@ -340,10 +340,40 @@ ______                        _ _   _                   _   _
 - nhìn lại đây, chúng ta lại có một chiếc tivi kì lạ như vậy trở lại, đây là một loại
 - of device to look at a microscope with you can connect it up to a microscope
 - thiết bị để xem kính hiển vi, mà bạn có thế kết nối nó với kính hiển vi
-- 
-- 
-- 
-- 
+- i think so, but i'm not 100 sure it's some sort off
+- tôi nghĩ vậy, nhưng tôi không chắc chắn 100% đó là một loại
+- yeau microscopic device uh display or something like that
+- vâng máy hiển thị, uh thiết bị hiển vi siêu nhỏ nào đó hay thứ gì đó tương tự
+- let's see if we have something over here yeah
+- hãy nhìn chúng ta có thứ gì ở đây
+- all the cups and plates are still in the cabinet from the ketchen
+- tất cả cốc và đĩa vẫn còn trong tủ từ nhà bếp
+- wow from above there she even displayed a nice vase
+- wow từ trên cao, cô ấy thậm chí trưng bày một chiếc bình đẹp
+- and everybody is going to take us now to the other rooms of the house
+- tất cả mọi người đưa chúng tôi tới phòng khác của ngôi nhà
+- that we are going to briefly(ngắn gọn) show you but most of them are trashed
+- mà chúng tôi sẽ giới thiệu cho bạn nhưng hầu hêt chúng đã được chuyển vào thùng rác
+- look over here the wallpaper is just peeling off(bóc ra) of the walls the ceiling comming off to the ground (mặt đất)
+- nhìn qua đây giấy dán tường bị bong tróc khỏi bức tường, trần nhà rơi xuống đất
+- we have a clock face left here
+- chúng tôi có một mặt đồng hồ bỏ lại ở đây
+- all that cleaning products are still in here
+- tất cả những sản phảm tẩy rửa vẫn còn ở đây
+- and if you have a look in the toilet over there you can see they had like a world map
+- và nếu bạn có một đồng hồ ở toilet qua đây bạn có thể nhìn thấy có một bản đồ thế giới
+- but of course with an autistic child that's probably very very difficult
+- nhưng tất nhiên với một đứa trẻ tự kỷ thì điều đó có lẽ rất khó
+- and looking at their house I don't think they also had the financial incentive to go there
+- và nhìn vào ngôi nhà tôi không nghĩ rằng họ cũng có động cơ tài chính để dến đó
+- this was a very tiny house for france
+- đây là một ngôi nhà rất nhỏ đối với nước pháp
+- even the coat of marielle is still hanging here on the coat hanger
+- ngay cả chiếc áo khoác của marielle vẫn còn treo ở đây trên mắc áo.
+- okay we're gonna take a first look into the basement of this place you see all
+- okay chúng ta sẽ lần đầu tiên nhìn vào tầng hầm của nơi này, bạn sẽ thấy
+- throughout the house she had flower wallpaper because she was really in love with flowers
+- khắp ngôi nhà của cô ấy có hình nền bưởi vì cô ấy thực sự yêu hoa
 - 
 - 
 - 
