@@ -465,7 +465,9 @@ ______                        _ _   _                   _   _
 - đây là phòng tắm họ chỉ có bồn tắm không có vòi hoa sen, tất nhiều có vòi hoa sen
 - but you have some shampoos left behind and some medicine and other applicances probably
 - nhưng bạn có còn sót một số gầu gội đầu và một số loại thuốc và các thiết bị khác có lẽ.
-- 
+- in here that combs(lược) and everything is still in here some scissors and all these things
+- trong đây có lược và mọi thứ vẫn còn ở đây một số kéo vầ tất cả những thứ này
+26:30 
 - 
 - 
 - 
