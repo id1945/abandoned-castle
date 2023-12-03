@@ -158,5 +158,25 @@
 - of this rich stone, as you can see. Very sturdy and have been standing here for four centuries
 - của loại đá cẩm thạch giàu có này. như bạn có thể thấy. Rất chắc chắn và đã đứng ở đây trong bố thế kỷ
 - 7:44
-
+- and these wooden doors as well like open and close into the rooms
+- và những cánh cửa gỗ này cũng như mở và đóng vào các phòng
+- Welcome inside. I have already looked at this room, but I believe that this used to be the servant's quarter,
+- Chào mừng vào bên trong. Tôi đã xem căn phòng này rồi, nhưng tôi tin rằng đây từng là nơi ở của người hầu
+- Where the servants of the household back in the time used to prepare all
+- Nơi mà những người hầu trong gia đình ngày xưa thường sử dụng cho tất cả.
+- The food for the family because back in 1633, a Belgian family built this place
+- Thức ăn cho gia đình vì vào năm 1633, một gia đình bỉ đã xây dựng nơi này
+- And they were noble. Of course, they
+- 8:09
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
 - 
